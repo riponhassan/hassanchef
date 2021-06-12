@@ -1,2 +1,2 @@
 # hassanchef
-Professional chef with leading hospitality industry, a blogger, banquet advisor.
+Professional chef with leading hospitality brand, a blogger, banquet advisor.
